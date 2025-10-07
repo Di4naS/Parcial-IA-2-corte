@@ -1,0 +1,1 @@
+# Parcial-IA-2-corte
